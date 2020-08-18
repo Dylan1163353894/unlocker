@@ -4,7 +4,7 @@
 
 作者主页：未知（欢迎反馈）
 
-下载链接：[https://jackmorning.lanzous.com/iUHAUfrqu7a](https://jackmorning.lanzous.com/iUHAUfrqu7a)
+下载链接：[https://www.lanzoux.com/iUHAUfrqu7a](https://www.lanzoux.com/iUHAUfrqu7a)
 
 软件说明：
 
